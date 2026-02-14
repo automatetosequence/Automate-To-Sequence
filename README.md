@@ -16,6 +16,9 @@ GitHub: https://github.com/automatetosequence/Automate-To-Sequence
 
 Email: automatetosequence@gmail.com
 
+<img width="1920" height="1080" alt="sequensi00000000" src="https://github.com/user-attachments/assets/867a410e-7be0-430b-a766-67a780804dd2" />
+
+<img width="1918" height="1033" alt="Screenshot 2026-02-14 023341" src="https://github.com/user-attachments/assets/46095856-da66-48dc-b62d-c4ec82d8c47b" />
 
 AUTOMATE TO SEQUENCE — WINDOWS INSTALL GUIDE
 
